@@ -1,2 +1,0 @@
-# Artworks
-My pencil sketches
